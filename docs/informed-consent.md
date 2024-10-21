@@ -20,7 +20,7 @@
 
 **Compensation:** You will receive [compensation details] for your participation in this study. Compensation will be provided upon completion of the study session.
 
-**Contact Information:** If you have any questions about this research, or if you experience any adverse effects during or after your participation, please contact Zachary Gilliam at zjgilliam@uiowa or 224-829-4470. If you have any questions about your rights as a research participant, you may contact the University of I.
+**Contact Information:** If you have any questions about this research, or if you experience any adverse effects during or after your participation, please contact Zachary Gilliam at zjgilliam@uiowa or 224-829-4470. If you have any questions about your rights as a research participant, you may contact the University of Iowa Institutional Review Board at 319-335-6564 or irb-outreach@uiowa.edu.
 
 **Statement of Consent:** By signing below, you indicate that you have read and understood this consent form, that you agree to participate in this study, and that you are at least 18 years of age.
 
